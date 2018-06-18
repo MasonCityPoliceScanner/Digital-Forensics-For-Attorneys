@@ -1,0 +1,2 @@
+# Digital-Forensics-For-Attorneys
+      Expert Consulting and Best Practices     Cost efficient handling of digital evidence     Culling and reduction of high-volume data sets     Quality acquisition of data and processing     Fast turn-around times including emergency 24-hour services.     Customized relationships to suit your firm’s workflow and preferences     Professionally documented and certified Forensic Reports
